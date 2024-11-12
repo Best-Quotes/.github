@@ -8,3 +8,4 @@ List of best quotes I have heard, seen, read or wrote in my life!
 ### The Scary thing about depression is that the people who have it are the best at hiding it.
 ---
 ### "The person you'd take a bullet for.. Are the ones behind the trigger"
+---
