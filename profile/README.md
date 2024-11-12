@@ -1,3 +1,7 @@
 # ✒️ Quotes
-
 List of best quotes I have heard, seen, read or wrote in my life!
+
+---
+### Why are the most beautiful people the first one to die?
+### “Imagine this, you are in a garden full of flowers. Which one do u pick first?”
+---
