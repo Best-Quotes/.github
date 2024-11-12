@@ -10,3 +10,4 @@ List of best quotes I have heard, seen, read or wrote in my life!
 ### "The person you'd take a bullet for.. Are the ones behind the trigger"
 ---
 ### The mirror is my best friend because when I cry it never laughs (Charlie Chaplin)
+---
