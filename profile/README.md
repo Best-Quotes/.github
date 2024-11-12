@@ -11,3 +11,5 @@ List of best quotes I have heard, seen, read or wrote in my life!
 ---
 ### The mirror is my best friend because when I cry it never laughs (Charlie Chaplin)
 ---
+### Smile, because it confuses people. Smile, because it’s easier than explaining what is killing you inside
+---
