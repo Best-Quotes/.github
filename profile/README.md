@@ -13,3 +13,8 @@ List of best quotes I have heard, seen, read or wrote in my life!
 ---
 ### Smile, because it confuses people. Smile, because it’s easier than explaining what is killing you inside
 ---
+### Everyone is jealous of what you have got but no one is jealous of how you got it 
+
+### People see the trophies but not the training grounds 
+
+### Everybody wants the view but no one want's to climb 
