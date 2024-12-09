@@ -18,3 +18,6 @@ List of best quotes I have heard, seen, read or wrote in my life!
 ### People see the trophies but not the training grounds 
 
 ### Everybody wants the view but no one want's to climb 
+
+If I did what you think, then I made you what you are. Gotham (S2 E14) 
+You get 2 choices life, happiness and truth
